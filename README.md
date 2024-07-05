@@ -1,2 +1,2 @@
-# Personal Resume
+# Personal Resume/Blog
 
